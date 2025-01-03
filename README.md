@@ -1,53 +1,53 @@
 ## Known Scammer Addresses
-vfw5383[@]gmail.com
-vfw30368[@]gmail.com
-departmentscommander01[@]gmail.com
-boxw28608[@]gmail.com
-businessinfovital[@]gmail.com
-calyxoniclearengergyfund[@]gmail.com
-ceo.positivity.state[@]gmail.com
-ceo.skillful.state[@]gmail.com
-ceooffice946[@]gmail.com
-ceoofficialtaskmanagement[@]gmail.com
-companyrequest384855[@]gmail.com
-criticalsituation096[@]gmail.com
-defaulttmailoffice[@]gmail.com
-dutyexecutive846[@]gmail.com
-emergencymailbox0786070078[@]gmail.com
-employeesinformation535[@]gmail.com
-executiveprivatemail337[@]gmail.com
-hightouchexecutive.pc[@]gmail.com
-mailboxemergency079[@]gmail.com
-managementtask341[@]gmail.com
-neiltutxonj[@]gmail.com
-officebox96323[@]gmail.com
-officedeskmm6[@]gmail.com
-officemailsinl[@]gmail.com
-officemailw244[@]gmail.com
-officerswork37[@]gmail.com
-officesmailju[@]gmail.com
-official.taskmail3341[@]gmail.com
-officialboxe855[@]gmail.com
-officialmail.task510[@]gmail.com
-officialtask.mail1921[@]gmail.com
-officialtaskus.inc064[@]gmail.com
-officialtext022[@]gmail.com
-officialupdatesuse[@]gmail.com
-personalmail67893[@]gmail.com
-primaryconcern213[@]gmail.com
-privatefrontdesk.00[@]gmail.com
-privatemail5845[@]gmail.com
-privatemail5921[@]gmail.com
-privatemail7809[@]gmail.com
-promotionm161[@]gmail.com
-quicktask887[@]gmail.com
-swifttask47[@]gmail.com
-taskcompany15[@]gmail.com
-taskswift232[@]gmail.com
-urgentmailsbox213[@]gmail.com
-urgenttasks677[@]gmail.com
-work.space9901[@]gmail.com
-work10space100[@]gmail.com
-workspac5322[@]gmail.com
-workspace7082[@]gmail.com
-workspace9135[@]gmail.com
+ - vfw5383[@]gmail.com
+ - vfw30368[@]gmail.com
+ - departmentscommander01[@]gmail.com
+ - boxw28608[@]gmail.com
+ - businessinfovital[@]gmail.com
+ - calyxoniclearengergyfund[@]gmail.com
+ - ceo.positivity.state[@]gmail.com
+ - ceo.skillful.state[@]gmail.com
+ - ceooffice946[@]gmail.com
+ - ceoofficialtaskmanagement[@]gmail.com
+ - companyrequest384855[@]gmail.com
+ - criticalsituation096[@]gmail.com
+ - defaulttmailoffice[@]gmail.com
+ - dutyexecutive846[@]gmail.com
+ - emergencymailbox0786070078[@]gmail.com
+ - employeesinformation535[@]gmail.com
+ - executiveprivatemail337[@]gmail.com
+ - hightouchexecutive.pc[@]gmail.com
+ - mailboxemergency079[@]gmail.com
+ - managementtask341[@]gmail.com
+ - neiltutxonj[@]gmail.com
+ - officebox96323[@]gmail.com
+ - officedeskmm6[@]gmail.com
+ - officemailsinl[@]gmail.com
+ - officemailw244[@]gmail.com
+ - officerswork37[@]gmail.com
+ - officesmailju[@]gmail.com
+ - official.taskmail3341[@]gmail.com
+ - officialboxe855[@]gmail.com
+ - officialmail.task510[@]gmail.com
+ - officialtask.mail1921[@]gmail.com
+ - officialtaskus.inc064[@]gmail.com
+ - officialtext022[@]gmail.com
+ - officialupdatesuse[@]gmail.com
+ - personalmail67893[@]gmail.com
+ - primaryconcern213[@]gmail.com
+ - privatefrontdesk.00[@]gmail.com
+ - privatemail5845[@]gmail.com
+ - privatemail5921[@]gmail.com
+ - privatemail7809[@]gmail.com
+ - promotionm161[@]gmail.com
+ - quicktask887[@]gmail.com
+ - swifttask47[@]gmail.com
+ - taskcompany15[@]gmail.com
+ - taskswift232[@]gmail.com
+ - urgentmailsbox213[@]gmail.com
+ - urgenttasks677[@]gmail.com
+ - work.space9901[@]gmail.com
+ - work10space100[@]gmail.com
+ - workspac5322[@]gmail.com
+ - workspace7082[@]gmail.com
+ - workspace9135[@]gmail.com
