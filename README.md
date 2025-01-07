@@ -1,4 +1,5 @@
 ## Known Scammer Addresses
+ - veterans535[@]gmail.com
  - vfw5383[@]gmail.com
  - vfw30368[@]gmail.com
  - departmentscommander01[@]gmail.com
