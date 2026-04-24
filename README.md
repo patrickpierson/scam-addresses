@@ -1,4 +1,5 @@
 ## Known Scammer Addresses
+ - veteranofforeignwarcommander[@]gmail.com
  - vfwmd.commander[@]gmail.com
  - veteranofforeignwarcommander01[@]gmail.com
  - americanlegion496[@]gmail.com
