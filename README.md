@@ -1,4 +1,17 @@
-## Known Scammer Addresses
+ - vfwmd.commander[@]gmail.com
+ - veteranofforeignwarcommander01[@]gmail.com
+ - americanlegion496[@]gmail.com
+ - legionamerican4412[@]gmail.com
+ - legionamerican672[@]gmail.com
+ - foreignwarveteran[@]gmail.com 
+ - jjobjhbdhjv[@]gmail.com
+ - lamerican455[@]gmail.com
+ - veterancommander677[@]gmail.com
+ - v44418874[@]gmail.com
+ - veterans832[@]gmail.com 
+ - vfwol11[@]gmail.com 
+ - gdp626592[@]gmail.com
+ - americanveterans63[@]gmail.com
  - veterans535[@]gmail.com
  - vfw5383[@]gmail.com
  - vfw30368[@]gmail.com
